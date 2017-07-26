@@ -1,0 +1,1 @@
+# yuripertamax.github.io
